@@ -1,4 +1,4 @@
-# I hope this was helpful
+# I hope this is helpful
 ## Quran memorization template:
 https://gainful-paper-59f.notion.site/2750176487b680c4a43cfc28855c010f?source=copy_link
 
